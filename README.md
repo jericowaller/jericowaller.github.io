@@ -1,1 +1,0 @@
-# jericowaller.github.io
